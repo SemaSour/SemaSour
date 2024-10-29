@@ -1,6 +1,6 @@
 👋 Hi, I’m Sema/Sour/Sveta
 
-- Any pronouns
+- She/they/he
 - I’m a multifandom, but for now my main interests are persona series, Pathologic, Rain World and Fear and Hunger 🥺
 
 
