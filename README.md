@@ -1,4 +1,4 @@
-👋 Hi, I’m Sema/Sour/Sveta
+Ru/eng
 
 
 
