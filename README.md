@@ -8,6 +8,9 @@ Ru/eng
 
 ![12240817_79a46](https://github.com/user-attachments/assets/9dbaafe6-bd7f-4c90-a25d-9a128fa5fe3e)![ezgif-3-72f22be07c](https://github.com/user-attachments/assets/b0b05afd-e442-4d07-bd86-e7c53b055bcb) ![12240894_2b218](https://github.com/user-attachments/assets/79a81924-e23a-4bce-b9dd-4574aabfa490)![12240898_756e4](https://github.com/user-attachments/assets/50395e7f-5a09-4ad0-a0c6-c697a67b5239)![ezgif-1-ea37c50d31](https://github.com/user-attachments/assets/950faca0-955b-446b-a38a-4d533700f6be)
 
+![connorgifsoicanfindit-persona-5](https://github.com/user-attachments/assets/e7b4757b-e060-4bec-9f86-07d5f9a69dd8)
+
+
 
 
 
