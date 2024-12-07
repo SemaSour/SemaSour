@@ -17,12 +17,12 @@ Ru/eng
 
 
 
-![connorgifsoicanfindit-persona-5](https://github.com/user-attachments/assets/44f419b2-ddf4-4725-b5aa-7bcca3ced4b5)
+
 
 
 ![12240845_33c47](https://github.com/user-attachments/assets/76fda4df-9722-4c38-9f83-d2cc1a5762c8)
 
-![slime-rancher-2](https://github.com/user-attachments/assets/ab49a7aa-0567-46e0-ad3d-4921b50212ec)![wiggle-tabby-slime-wiggle](https://github.com/user-attachments/assets/6d97397a-f192-4aaa-b9a3-a91be2dac7b1)
+![wiggle-tabby-slime-wiggle](https://github.com/user-attachments/assets/6d97397a-f192-4aaa-b9a3-a91be2dac7b1)
 
 
 
