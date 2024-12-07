@@ -10,8 +10,9 @@ Ru/eng
 ![12240817_79a46](https://github.com/user-attachments/assets/9dbaafe6-bd7f-4c90-a25d-9a128fa5fe3e)![ezgif-3-72f22be07c](https://github.com/user-attachments/assets/b0b05afd-e442-4d07-bd86-e7c53b055bcb)
 
 
+![12240845_33c47](https://github.com/user-attachments/assets/3554f18a-5d8d-4979-a84e-1bf79e990121)
 
-![Uploading 12240845_33c47.gif…]()
+
 
 
 
