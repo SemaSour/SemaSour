@@ -10,6 +10,8 @@ Ru/eng
 
 ![connorgifsoicanfindit-persona-5](https://github.com/user-attachments/assets/e7b4757b-e060-4bec-9f86-07d5f9a69dd8)
 
+![slime-rancher-2](https://github.com/user-attachments/assets/212f3117-a54a-467e-80bb-c80a36919e33)![wiggle-tabby-slime-wiggle](https://github.com/user-attachments/assets/18387da5-74c2-48d2-9246-ccf3d74881dd)
+
 
 
 
