@@ -1,6 +1,7 @@
 Ru/eng
 
-![12241132_36a8b](https://github.com/user-attachments/assets/ace4f633-d17b-46a8-b2b1-954fc502b404)![ezgif-5-e0ce126594](https://github.com/user-attachments/assets/144c7547-dc11-4695-988d-d4cb8120f483)![25cff3f5430c7e67a83823bfbc43f86a](https://github.com/user-attachments/assets/73e6a29c-504b-4bd8-88f2-2a087683f3f6)
+![12241132_36a8b](https://github.com/user-attachments/assets/ace4f633-d17b-46a8-b2b1-954fc502b404)![ezgif-5-e0ce126594](https://github.com/user-attachments/assets/144c7547-dc11-4695-988d-d4cb8120f483)
+![25cff3f5430c7e67a83823bfbc43f86a](https://github.com/user-attachments/assets/32de8350-bc5c-40e6-ae1c-650cda3a2598)
 
 
 
