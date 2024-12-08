@@ -1,6 +1,6 @@
 Ru/eng
 
-![12241132_36a8b](https://github.com/user-attachments/assets/ace4f633-d17b-46a8-b2b1-954fc502b404)![tumblr_88c9c98a655b7e8e824db2697831dc8e_5057d8c5_400](https://github.com/user-attachments/assets/8ec43a0d-5718-4c1f-a722-7a67dd6f83ca)
+![12241132_36a8b](https://github.com/user-attachments/assets/ace4f633-d17b-46a8-b2b1-954fc502b404)![ezgif-5-e0ce126594](https://github.com/user-attachments/assets/17dfd604-870f-465a-8534-7001ec4f6e26)
 
 
 
