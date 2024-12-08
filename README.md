@@ -2,7 +2,7 @@ Ru/eng
 
 ![12241132_36a8b](https://github.com/user-attachments/assets/ace4f633-d17b-46a8-b2b1-954fc502b404)
 
-![q32BPXutgUsLihN5x-_zzo9bmmyefqKGxTPe2Pf7r4Hfm8pCQHe92HkW68e2MYAunbgB5mtIxRbIEy0Uovrjt-85](https://github.com/user-attachments/assets/5b0874b4-8885-4185-9ffc-ed6a82bf5134)
+
 
 
 ![12240736_a3405](https://github.com/user-attachments/assets/50c7cdb2-9387-4fe1-a816-cfe5b61323ab)![12240746_4ceb3](https://github.com/user-attachments/assets/728f4ba6-4848-4382-bc00-4d40e2dda14c)
