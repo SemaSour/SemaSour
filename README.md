@@ -25,7 +25,7 @@ Ru/eng
 
 
 
-![12240845_33c47](https://github.com/user-attachments/assets/76fda4df-9722-4c38-9f83-d2cc1a5762c8)
+
 
 
 
