@@ -10,6 +10,7 @@ tgc soursema
 
 ![12241132_36a8b](https://github.com/user-attachments/assets/ace4f633-d17b-46a8-b2b1-954fc502b404)
 
+![ivlis-ivlis-okegom](https://github.com/user-attachments/assets/6af904c1-ee70-4165-9fc9-837388cd98e3)
 
 
 
