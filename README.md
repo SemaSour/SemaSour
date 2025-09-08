@@ -2,6 +2,8 @@ RU/ENG
 
 Multifandom! Mostly afk
 
+ET(N) SP/SX7 SP7SX4SP8 VLEF MEL-CHOL SEALUV
+
 tg info s77sse7
 
 tgc soursema
