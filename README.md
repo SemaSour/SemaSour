@@ -1,7 +1,6 @@
 RU/ENG                   
 
 Multifandom! Mostly afk               
-![12241132_36a8b](https://github.com/user-attachments/assets/ace4f633-d17b-46a8-b2b1-954fc502b404)
 
 tg info s77sse7
 
