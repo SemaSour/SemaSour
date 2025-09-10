@@ -9,7 +9,8 @@ tgc soursema
 
 
 
-![ivlis-ivlis-okegom](https://github.com/user-attachments/assets/6af904c1-ee70-4165-9fc9-837388cd98e3)
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/b8d9799b-ea56-4fcb-8fb3-44364955396b" />
+
 
 
 
