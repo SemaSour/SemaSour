@@ -7,7 +7,8 @@ RU/ENG
 tg info s77sse7
 tgc soursema                                              
 
-![5ee7e1dd678605ec0f5b685bf39d2930](https://github.com/user-attachments/assets/7d573dc8-0ee3-412d-8a43-a2bd5f07b81b)
+
+![5ee7e1dd678605ec0f5b685bf39d2930](https://github.com/user-attachments/assets/dedc7e9b-c607-4c91-9f4d-4f60a9252930)
 
 
  EN(T)  so7sx4so8 VLEF mel-sang
