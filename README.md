@@ -12,7 +12,7 @@ tgc soursema
 
 
 
- EN(T)  so7sx4so8 VLEF mel-sang
+ ET(N)so7sx4so8 VLEF mel-sang
 
 
 
