@@ -1,4 +1,5 @@
 RU/ENG                   
+![fc404aae4d61c1dcb5e864c22340d84e](https://github.com/user-attachments/assets/89a4e162-9e39-4582-9d4f-ea4e006af36b)
 
 ДНИ НЕТ но не навязывайтесь если не видите ответной реакции. Чаще всего афк             
 
