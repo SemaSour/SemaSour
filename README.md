@@ -8,7 +8,8 @@ tg info s77sse7
 tgc soursema                                              
 
 
-![fc404aae4d61c1dcb5e864c22340d84e](https://github.com/user-attachments/assets/5d7fc6a8-73bd-4d57-915d-b53533891c3a)
+
+![fc404aae4d61c1dcb5e864c22340d84e](https://github.com/user-attachments/assets/3f15874d-a581-44fd-ab88-c4d02b11308b)
 
 
 
