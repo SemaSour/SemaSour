@@ -11,12 +11,8 @@ tgc soursema
 
 ![494068610-97eab15d-4a58-4fbd-a17b-20b08ade8545](https://github.com/user-attachments/assets/4ad49446-079b-49ef-9489-a63cf6babd50)
 
-
-
-⊹܀            ܀   ET(N)so7sx4so8 VLEF mel-chol
-
-
-
+   
+ET(N)  so7sx4so8 VLEF mel-chol
 
 
 
