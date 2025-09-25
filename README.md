@@ -1,14 +1,13 @@
 RU/ENG                   
 
-Multifandom! Mostly afk               
+ДНИ НЕТ но не навязывайтесь если не видите ответной реакции. Чаще всего афк             
 
 tg info s77sse7
-
 tgc soursema                                              
 
 
 
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/b8d9799b-ea56-4fcb-8fb3-44364955396b" />
+
 
 
 
