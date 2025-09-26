@@ -1,4 +1,4 @@
-   RU/ENG     ܀            ⊹     ───✧₊∘
+   RU/ENG     ܀     ㅤㅤㅤ       ⊹ㅤㅤㅤㅤ───✧₊∘
    
 
 ![fc404aae4d61c1dcb5e864c22340d84e](https://github.com/user-attachments/assets/e54e9926-c4c1-4e20-affe-cf3e8d39d338)
@@ -9,7 +9,7 @@ tg info s77sse7     tgc soursema
 
 
 
-ET(N)  so7sx4so8 VLEF mel-cholㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                  ─✧₊∘
+ET(N)  so7sx4so8 VLEF mel-cholㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤㅤㅤㅤ     ─✧₊∘
 
   
 
