@@ -11,7 +11,7 @@
 
 tg info s77sse7     tgc soursema    
 
-ET(N)  so7sx4so8 VLEF⁴¹²¹ mel-cholㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ          *   ㅤㅤㅤㅤ   ─✧ㅤ₊
+ET(N)  so7sx4so8 VLEF⁴¹²¹ mel-cholㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ          *   ㅤㅤㅤ   ─✧ㅤ₊
 
 ㅤ
 ㅤ
