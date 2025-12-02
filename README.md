@@ -19,7 +19,7 @@ w2i / c+h
 ㅤ 
 ㅤ 
 
-tg info s77sse7     tgc soursema    
+tg sour_7     tgc soursema    
 
 ET(N)  so7sx4so8 VLEF⁴¹²¹ mel-cholㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ          *   ㅤㅤㅤ   ─✧ㅤ₊
 
