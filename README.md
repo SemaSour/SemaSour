@@ -9,6 +9,8 @@ w2i / c+h
   FANDOMS: Phighting!, Persona 2-5 , Fear and Hunger ,Identity V, South Park,
   Pathologic
 
+
+   
  
  
  ДНИ: младше 15; навязчивые при том условии, что ответной реакции вам не дают;
