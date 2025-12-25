@@ -32,7 +32,7 @@ int / w2i / c+h
 
 tg sour_7     tgc soursema    
 
-En(T) LIE so7sx4so8 VLEF⁴¹²¹ mel-cholㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ          *   ㅤㅤㅤ   ─✧ㅤ₊
+En(T) LIE sp7 mel-cholㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ          *   ㅤㅤㅤ   ─✧ㅤ₊
 
 ㅤ
 ㅤ
