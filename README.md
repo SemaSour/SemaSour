@@ -32,7 +32,7 @@ int / w2i / c+h
 
 tg sour_7     tgc soursema    
 
-sx5 LEVFㅤㅤㅤㅤㅤㅤㅤ          *   ㅤㅤㅤ   ─✧ㅤ₊
+ㅤㅤㅤㅤㅤ          *   ㅤㅤㅤ   ─✧ㅤ₊
 
 ㅤ
 ㅤ
