@@ -1,7 +1,7 @@
    RU/ENG     ܀     ㅤㅤㅤ       ⊹ㅤㅤㅤ──ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ─✧₊ㅤ∘
    
 
-int / w2i / c+h 
+int / w2i / c+h анонимка в тг https://t.me/anonaskbot?start=VGZ4gqosBN1Fd9P 
 
 
   FANDOMS: Phighting!, Persona 2-5 , Fear and Hunger ,Identity V, South Park,
