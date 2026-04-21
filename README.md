@@ -4,15 +4,19 @@
 int / w2i / c+h анонимка в тг [https://t.me/anonaskbot?start=VGZ4gqosBN1Fd9P ](https://t.me/anonaskbot?start=us_6wjxe4)
 
 
-  FANDOMS: Persona 2-5 , Fear and Hunger ,Identity V, South Park,
-  Pathologic, Phighting!
+  FANDOMS: Persona 2-5 ,Identity V, South Park,
+  Pathologic, Roblox in general
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
    
- ㅤㅤㅤㅤㅤㅤ
- ㅤㅤㅤ
+About me^^o^ Любые интеракты норм, оскорбления в шутку - норм, болтовня на рандом тему норм, 
+можете звать меня играть во что угодно рб иден хз, с гс норм но не всегда могу корчое всё ок
+
+
+
  
- DNI: младше 16 (можно быть мью но без близкого общения), гомофобы трансфобы фэтшейминг эйджизм
+ DNI: младше 16 (можно быть мью но без близкого общения), открытое проявление любого
+ вида дискриминации 
 
 
 
