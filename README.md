@@ -4,7 +4,7 @@
 int / w2i / c+h анонимка в тг [https://t.me/anonaskbot?start=VGZ4gqosBN1Fd9P ](https://t.me/anonaskbot?start=us_6wjxe4)
 
 
-<img width="640" height="326" alt="efd3d55541b44c1904ade7a9123b31b9" src="https://github.com/user-attachments/assets/6194f9b9-7181-4dd1-90df-6b764606bb41" />
+
 
 
 
