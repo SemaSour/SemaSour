@@ -4,6 +4,10 @@
 int / w2i / c+h анонимка в тг [https://t.me/anonaskbot?start=VGZ4gqosBN1Fd9P ](https://t.me/anonaskbot?start=us_6wjxe4)
 
 
+<img width="640" height="480" alt="efd3d55541b44c1904ade7a9123b31b9" src="https://github.com/user-attachments/assets/98feb4a8-f170-46ca-99c1-fcf1b4a4e567" />
+
+
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
   FANDOMS: Persona 2-5 ,Identity V, South Park,
