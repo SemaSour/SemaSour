@@ -11,7 +11,7 @@ int / w2i / c+h анонимка в тг [https://t.me/anonaskbot?start=VGZ4gqos
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-  FANDOMS: Persona 2-5 ,Identity V, South Park,
+  FANDOMS: Persona 2-5 ,Identity V,
   Pathologic, Roblox in general
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
