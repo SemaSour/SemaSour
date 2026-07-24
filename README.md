@@ -36,8 +36,7 @@ About me^^o^ Любые интеракты норм, оскорбления в �
 
 ㅤ  
 ㅤ 
-
-tg sour_7     tgc soursema    
+ tgc soursema    
 
 ㅤㅤㅤㅤㅤ          *   ㅤㅤㅤ   ─✧ㅤ₊
 
