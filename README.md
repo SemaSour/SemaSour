@@ -8,7 +8,7 @@ int / w2i if afk
 
     
   
-    FANDOMS: Persona 2-5 ,Identity V,
+  FANDOMS: Persona 2-5 ,Identity V,
   Pathologic, Roblox
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
