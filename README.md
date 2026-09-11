@@ -9,7 +9,7 @@ int / w2i if afk
     
   
   FANDOMS: Persona 2-5 ,Identity V,
-  Pathologic, Roblox
+  Pathologic, Roblox, fear and hunger, genshin
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
