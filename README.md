@@ -12,7 +12,7 @@ int / w2i if afk
   Pathologic, Roblox, fear and hunger, genshin
 ㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤмой тви https://x.com/sema7_77ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 
 ㅤ
