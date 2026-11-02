@@ -24,7 +24,7 @@ int / w2i if afk
     
      
      
-    MAIN FDs: Persona 2-5 ,Identity V,
+MAIN FDs: Persona 2-5 ,Identity V,
   Pathologic, Roblox, fear and hunger, genshin
 ㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
