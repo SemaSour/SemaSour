@@ -6,8 +6,10 @@ int / w2i if afk
 
 
 а ещё базовое дни ВКЛЮЧАЯ трансфобов а ещё фанатов каши, мафани, мелстроя и тп просто дичайший дни
-ㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤ
+
+
+
+  
 ну и пубертатные челы в км эннеаграми 
  ㅤ  ㅤㅤㅤㅤㅤ
 
@@ -18,7 +20,11 @@ int / w2i if afk
 
 
      
-  MAIN FDs: Persona 2-5 ,Identity V,
+  
+    
+     
+     
+    MAIN FDs: Persona 2-5 ,Identity V,
   Pathologic, Roblox, fear and hunger, genshin
 ㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
