@@ -32,7 +32,7 @@ MAIN FDs: Persona 2-5 ,Identity V,
 
   
    
-   ㅤмой тви https://x.com/sema7_77ㅤㅤㅤㅤㅤㅤㅤ
+   ㅤмой тви @sema7_77ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 
 ㅤ
